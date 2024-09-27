@@ -6,6 +6,6 @@
 - 🤔 I’m looking for help with getting job in tech
 - 💬 Ask me about: I enjoy building applications and resolving issues.]
 - 📫 How to reach me: chayanabbe@gmail.com
-- 😄 Pronouns: He
+- 😄 Pronouns: Him
 - ⚡ Fun fact: I am multilingual.
 
